@@ -1,1 +1,0 @@
-# ayush-professional---profile
